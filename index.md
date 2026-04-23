@@ -11,8 +11,9 @@ Expert casino gaming guides tailored for Sri Lankan players — slots, roulette,
 
 ---
 
-## Latest Articles (3)
+## Latest Articles (4)
 
+- [Baccarat Patterns and Trends: Read the Table Like a Pro](./baccarat-patterns-and-trends-read-the-table-like-a-pro/)
 - [Complete Blackjack Guide for Beginners in Sri Lanka](./complete-blackjack-guide-for-beginners-in-sri-lanka/)
 - [Roulette Tips for Sri Lankan Players: European vs American](./roulette-tips-for-sri-lankan-players-european-vs-american/)
 - [Online Slots Strategy Guide: How to Maximize Your Wins in Sri Lanka](./online-slots-strategy-guide-how-to-maximize-your-wins-in-sri/)
