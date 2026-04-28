@@ -11,8 +11,9 @@ Expert casino gaming guides tailored for Sri Lankan players — slots, roulette,
 
 ---
 
-## Latest Articles (5)
+## Latest Articles (6)
 
+- [Bankroll Management Strategies for Online Casino Players in Sri Lanka](./bankroll-management-strategies-for-online-casino-players-in-/)
 - [Live Casino Etiquette: Do's and Don'ts for Sri Lankan Players](./live-casino-etiquette-dos-and-donts-for-sri-lankan-players/)
 - [Baccarat Patterns and Trends: Read the Table Like a Pro](./baccarat-patterns-and-trends-read-the-table-like-a-pro/)
 - [Complete Blackjack Guide for Beginners in Sri Lanka](./complete-blackjack-guide-for-beginners-in-sri-lanka/)
