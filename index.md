@@ -11,8 +11,9 @@ Expert casino gaming guides tailored for Sri Lankan players — slots, roulette,
 
 ---
 
-## Latest Articles (6)
+## Latest Articles (7)
 
+- [RTP and Slot Volatility Explained: Choose Games That Pay](./rtp-and-slot-volatility-explained-choose-games-that-pay/)
 - [Bankroll Management Strategies for Online Casino Players in Sri Lanka](./bankroll-management-strategies-for-online-casino-players-in-/)
 - [Live Casino Etiquette: Do's and Don'ts for Sri Lankan Players](./live-casino-etiquette-dos-and-donts-for-sri-lankan-players/)
 - [Baccarat Patterns and Trends: Read the Table Like a Pro](./baccarat-patterns-and-trends-read-the-table-like-a-pro/)
