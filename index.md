@@ -11,8 +11,9 @@ Expert casino gaming guides tailored for Sri Lankan players — slots, roulette,
 
 ---
 
-## Latest Articles (8)
+## Latest Articles (9)
 
+- [Live Blackjack vs RNG Blackjack: Which is Better for Sri Lankan Players?](./live-blackjack-vs-rng-blackjack-which-is-better-for-sri-lank/)
 - [Progressive Jackpot Slots Guide: How to Win Big in Sri Lanka](./progressive-jackpot-slots-guide-how-to-win-big-in-sri-lanka/)
 - [RTP and Slot Volatility Explained: Choose Games That Pay](./rtp-and-slot-volatility-explained-choose-games-that-pay/)
 - [Bankroll Management Strategies for Online Casino Players in Sri Lanka](./bankroll-management-strategies-for-online-casino-players-in-/)
