@@ -11,8 +11,9 @@ Expert casino gaming guides tailored for Sri Lankan players — slots, roulette,
 
 ---
 
-## Latest Articles (10)
+## Latest Articles (11)
 
+- [Best Casino Bonuses in Sri Lanka 2026: Wagering Requirements Explained](./best-casino-bonuses-in-sri-lanka-2026-wagering-requirements-/)
 - [Martingale Roulette Strategy Review: Does It Really Work?](./martingale-roulette-strategy-review-does-it-really-work/)
 - [Live Blackjack vs RNG Blackjack: Which is Better for Sri Lankan Players?](./live-blackjack-vs-rng-blackjack-which-is-better-for-sri-lank/)
 - [Progressive Jackpot Slots Guide: How to Win Big in Sri Lanka](./progressive-jackpot-slots-guide-how-to-win-big-in-sri-lanka/)
